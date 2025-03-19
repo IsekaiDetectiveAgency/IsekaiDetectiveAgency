@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...sana
 - 📫 How to reach me ...Don't
 - 😄 Pronouns: ...Group
-- ⚡ Fun fact: ...We Have Managed to Create an Networking Protocol That Can Travel Through Dimentions
+- ⚡ Fun fact: ...We Have Managed to Create an Networking Protocol That Can Travel Through Dimentions, anyone who's interested in collaborating i have two words for you: Give Up
 
 <!---
 IsekaiDetectiveAgency/IsekaiDetectiveAgency is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
